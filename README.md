@@ -1,1 +1,0 @@
-# pauzhetsky.github.io
